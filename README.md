@@ -23,4 +23,6 @@ IV. Dạy
 - Sắp xếp lại những gì mình đã học
 - Diễn đạt lại những gì mình đã soạn
 - Truyền đạt lại cho người khác
+
+
 Vừa dạy vừa học hỏi người khác, có như vậy mới nhớ lâu, mới lên tay nghề :)
